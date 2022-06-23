@@ -23,7 +23,8 @@ Noor Ahmad (AFG), Cameron Boyce, Brody Crouch, Zak Evans, Aaron Finch (c), Jake 
 Hilton Cartwright, Jackson Coleman, Nathan Coulter-Nile, Ben Dunk, Andre Fletcher (WI), Seb Gotch, Liam Hatcher, Clint Hinchliffe, Dilbar Hussain (PAK), Zahir Khan (AFG), Nick Larkin, Nic Maddinson, Glenn Maxwell (c), Lance Morris, Tom O'Connell, Nicholas Pooran (WI), Will Pucovski , Haris Rauf (PAK), Billy Stanlake, Marcus Stoinis, Adam Zampa
 
 > **Perth Scorchers**
->
+
+Sax0ph0ne
 Ashton Agar, Fawad Ahmed, Cameron Bancroft, Jason Behrendorff, Joe Clarke (England), Cameron Gannon, Cameron Green, Liam Guthrie, Aaron Hardie, Josh Inglis, Matthew Kelly, Liam Livingstone (ENG), Mitchell Marsh (c), Colin Munro (NZ), Joel Paris, Kurtis Patterson, Jhye Richardson, Corey Rocchiccioli, Jason Roy (ENG), Ashton Turner, Andrew Tye, Sam Whiteman
 
 > **Sydney Sixers**
